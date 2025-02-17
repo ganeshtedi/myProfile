@@ -1,2 +1,0 @@
-# myProfile
-Portfolio - Ganesh Baisani
